@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @liamdelahunty
-- I'm the SEO Manager for Croner-i Ltd.
+- I'm the Head of Organic and SEO for Croner Group Limited (Previously Croner-i Ltd)
 - My personal account is @liamvictor.
 - 😄 Pronouns: He/Him
 
